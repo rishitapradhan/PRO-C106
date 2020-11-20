@@ -1,1 +1,1 @@
-# PRO-C106
+# WH Jr. Pro-C106 by Rishita Pradhan
